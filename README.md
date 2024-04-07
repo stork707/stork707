@@ -8,3 +8,5 @@ i love birds and motorcycles
 i love playing roblox i also love my girlfriend and my friends im rlly socially awkward so if you try to befriend me
 pls put effort on our conversations because i have nothing to talk about but i love meeting new people hmu if you want
 it might take me a while to warm up tho im funny i promise 
+
+also im a huge the mimic fan i love the mimic
