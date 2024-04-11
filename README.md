@@ -4,7 +4,7 @@ you can take inspo off my style just let me know first, im **c+h friendly** so y
 
 i love birds motorcycles and paranormal stuff
 
-i love playing roblox i also love my girlfriend and my friends im rlly socially awkward so if you try to befriend me
+i love playing roblox i also love my girlfriend and my friends im rlly socially awkward (but social at the same time)so if you try to befriend me
 pls put effort on our conversations because i have nothing to talk about but i love meeting new people hmu if you want
 it might take me a while to warm up tho im funny i promise 
 
