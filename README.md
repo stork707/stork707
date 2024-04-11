@@ -9,3 +9,5 @@ pls put effort on our conversations because i have nothing to talk about but i l
 it might take me a while to warm up tho im funny i promise 
 
 also im a huge the mimic fan i love the mimic 
+
+# SEND ME STUFF ON MY DRAWBOX AND GUESTBOOK
