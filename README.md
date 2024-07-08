@@ -1,6 +1,6 @@
 hi im boreal i am from brazil i dont have a dni i hide freely
 
-you can take inspo off my style just let me know first, im **c+h friendly** so youre free to sit next to me or anything when im alone and you can also send me friend requests anytime ill accept occasionally
+you can take inspo or colorpick i dont really gaf im **c+h friendly** so youre free to sit next to me or anything when im alone and you can also send me friend requests anytime ill accept occasionally
 
 i love birds motorcycles and paranormal stuff
 
